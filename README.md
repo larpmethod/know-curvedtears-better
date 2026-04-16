@@ -8,10 +8,10 @@ know me better.
 
 i go by:
 
-curvedtears  
-qajk  
-larpmethod
-warmzeit
+- curvedtears  
+- qajk  
+- larpmethod
+- warmzeit
 
 pick whatever you want.  
 it’s all me anyway. 
