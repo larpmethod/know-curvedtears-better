@@ -71,7 +71,7 @@ just to create.
 
 ## find me
 
-https://guns.lol/qajk  
+no Links yet
 
 
 ---
